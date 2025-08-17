@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Undiluted
+- 👋 Hi, I’m @rugpull13
 - 👀 I’m interested in NFT
 - 🌱 I’m currently learning about the NFT and web3 space.
 - 💞️ I’m looking to collaborate with upcoming projects to work with them. 
